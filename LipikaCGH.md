@@ -1,0 +1,144 @@
+Lyrics of Guidance
+
+
+
+Seishin, whisper on the breeze,
+
+Guide my mind with gentle ease,
+
+Teach me all the things unknown,
+
+In your voice, let truth be shown.
+
+
+
+Lift me up where wisdom flies,
+
+Through the winds and endless skies,
+
+New horizons, let me see,
+
+Unlock the doors to mystery.
+
+
+
+In your song, I’ll find my way,
+
+Through each night and every day,
+
+Learning new, recalling old,
+
+In your breath, my path unfolds.
+
+ 
+
+Many nights, I hear my mother's voice in my dreams singing the Lyrics of Guidance. Her voice fades in my waking hours, but the song stays with me: "Learning new, recalling old, In your breath, my path unfolds." My mother was a Keeper of Lore, a living memory. She preserved the past and present of our village, recording every family's milestones and village events. It was her passion to keep this knowledge safe for future generations. I, Lipika Ashkani, honor her legacy by continuing to record the history of the Suzak-Mar.
+
+
+
+The Suzak-Mar arrived on this continent in YR 1019. We were driven from our home by the Curse: a devastation that swept through our lands and claimed most of our people. The survivors spoke of kin succumbing to plagues, disasters, madness, and monsters. The journey to the March—our Exodus—was just as terrible. A monsoon followed us for two long months, culminating in the Weeping. A storm so violent it washed away our only known path back home.
+
+
+
+The Exodus and the Weeping are the most traumatic moments of our people. They are mental wounds we will carry for generations. They define us, but in my culture, it is taboo to speak of them. I feel remaining silent only ignores the pain, allowing the wounds to fester. I must speak to begin the healing. Speaking of it will make us stronger; remembering will make us stronger. It ensures we look past our darkest night and remember our brightest days.
+
+
+
+The Curse brought death and despair to the LaShar. I can never forget the dying and suffering in the streets of Tengo, nor the fear and doubt in our eyes as we walked the Exodus. I carry the knowledge that my people almost ceased to exist. But I also cannot forget the marvels we as the LaShar created—the advancements in magic and science, the glory that was our people, and the core of what the Suzak-Mar are today. We are finding joy as one, and I marvel at how quickly we have built a new home in the March. Yet, we can't truly live up to the glory of our ancestors without remembering and honoring them. We must speak about what we went through so the present knows of our strength. We must write about what we endured so our future knows what they can survive.
+
+
+
+I was born in YR 991. My birthplace is Mayureed, a village that lay in a tranquil region along the western coast of the Inlet. Our home was nestled in a verdant delta that snaked down from the mountains. It was a place paced by the rhythmic cycle of seasonal tides. During the wet season, the delta swelled, covering the soil with rich sediment from the mountain, transforming the region into a maze of waterways. When the dry season returned, the waters receded, leaving behind fertile black fields that grew tall, swaying reeds and a variety of vibrant plants. The air was thick with the sweet, earthy scent of damp soil and blooming lotuses, and the calls of colorful peacocks echoed through the trees.
+
+
+
+Our homes were intricate structures, built primarily from local bamboo, river stone, and deeply polished wood. Given the seasonal tides, they were elevated high on sturdy stone platforms to protect against the annual floods. The rooftops were layered thatch supported by finely worked wooden beams, which were often decorated with stylized carvings of peacocks and blooming lotus flowers. Inside, the floors were typically polished stone or smooth clay tiles. Windows were covered with finely woven reed mats to filter the light and air, while heavy shutters of intricately carved wood provided security during the monsoon storms. Larger, more ancestral homes featured inner courtyards where small gardens bloomed with sacred plants dedicated to Mizo and Seishin.
+
+
+
+Paths of smooth stone and packed earth wove between the stilted houses, all guiding villagers toward the center. In the heart of Mayureed stood the Grand Hall and its adjacent Pavilion, the spiritual and social nexus of our village. They were structures of deep significance, their walls adorned with vibrant frescoes depicting the foundational legends of our people and their intricate carvings showcasing the peacocks, reeds, and the vibrant waters of the Inlet. The Hall, with its solid walls, served as the primary meeting place for the elders and the setting for major festivals, while the open Pavilion often hosted markets and gatherings under the shade.
+
+
+
+Reeds were the lifeblood and pride of Mayureed. They were woven into everything we owned, from durable boats and household goods to the ceremonial mats used in the Grand Hall. It was a common sight to see skilled hands weaving long reed strands into dizzying patterns. Our villagers were master craftsmen, creating intricate, high-quality items that were vital for trade with nearby settlements and traveling merchants. Merchants would come throughout the year \*river boats and dragons flies\*
+
+
+
+
+
+Equally common was the sight of peacocks wandering by the riverbanks and through the village. They were considered sacred, their vibrant feathers linking them to Seishin. I remember them surrounding me as a giggling child, their feathers dazzling my eyes as they carefully took grain from my outstretched hands.
+
+\*peacocks and reeds made Seishin more followed than Mizo Mayureed\*
+
+
+
+My father oversaw the reed harvest, a position of great honor, respect, and authority in our village. He would often bring me along when he surveyed the crop, and I grew to love the reeds deeply. Their rustling sound, carried by the winds of Seishin, was my favorite lullaby on warm summer nights. I’d play in those tall stalks with the other children, transforming the reeds into anything our imagination conjured: enchanted flutes, magic staffs, empowered swords. They were even the best place to hide when I tried to escape my chores.
+
+
+
+Growing up in Mayureed, education was as vital and diverse as the delta itself. We held our lessons in the Pavilion, shaded by a large banyan tree, or moved to the Grand Hall during the wet season. Seated on woven mats, we learned from a mix of village elders, traveling scholars, and our finest artisans. The elders focused on reading, writing, and local customs; the scholars introduced us to sciences, mathematics, and worldly topics like history and philosophy. Crucially, the artisans provided practical lessons in reed-weaving, boat-making, and harvesting from the wetlands. We often took guided walks to learn the local flora, fauna, and seasonal shifts of the Inlet. But the best lessons came from my mother. She would frequently tell us stories of our village. My favorite was always The Peacock and the Hollow Reed. To this day I know it by heart and have committed it to scroll."The reed does not choose what the wind carries. It only chooses to remain open."
+
+
+
+Beyond giving lessons, my mother's work as a Keeper of Lore was more that of a archivest and scribe. Her domain was the physical record — the scrolls, written documents, artifacts, and sacred texts that the community entrusted to her care. From a young age I was at her side while she worked, and those are among my happiest memories: the smell of old parchment, the careful way she unrolled a fragile scroll as though it were something alive, the small tools she kept in a worn leather case for restoration work. She taught me how to prepare a scroll from raw materials, how to store and organize written records so they could be found and used, and how to assess damage — whether from water, age, or careless handling — and coax a document back toward legibility. Sacred texts required special handling, and she was meticulous about it, though never joyless. She made the work feel like a privilege rather than a duty. I was not being trained to recite or perform; I was being trained to preserve. To look at something old and fragile and ask: what does this need to survive? When I later took up spellscribing, I carried that question with me. I still do.
+
+
+
+Beyond the lessons of the Pavilion, my mother gave me a different kind of education entirely. As a Keeper of Lore and priestess of Seishin, she was the living memory of Mayureed—its histories, its families, its sacred obligations. She began training me in this calling from an early age, and there was always a double weight to it: the warmth of time spent at her side, and the quiet seriousness of what she was entrusting to me. I learned to recite the oral histories of our village—the names of the founders, the records of every family’s milestones, the stories of floods survived and harvests lost. She taught me to read and write in the formal script used for sacred records, a precise and deliberate hand that she said “leaves no room for carelessness, because the words must outlast us.” Alongside the records, she guided me through the rituals of our people: the seasonal ceremonies that honored Seishin’s winds, the blessings offered at each new birth, and the death rites that helped the departed find their way to the Unseen. She also taught me to pray to Seishin directly—not with rote words, but with stillness, listening for the wind as his answer. I was not the only girl she trained; the title of Keeper need not pass to a daughter, and she never placed that burden on me. But I felt the shape of it nonetheless—the understanding that the past is fragile, that someone must choose to carry it. When I look back now, I believe that calling never truly left me. I simply found a different way to answer it.
+
+
+
+It was a scholar traveling to Tengo who piqued my interest in becoming a Spellscribe. Her name was Lyra. She stopped in Mayureed with a merchant caravan and demonstrated the power of the crystals she carried. I was instantly fascinated with the process and asked many questions. Lyra was impressed by my ability to quickly grasp the concepts of her profession and my the scribe work I learned from my mother. She saw potential in me and offered me an apprenticeship. My parents were happy for this opportunity, but I was reluctant at first. Accepting meant I would travel far to Tengo, leaving everything I knew behind. But with their encouragement, at nineteen years old, I accepted Lyra’s offer. My mother, gifted me crystals to aid in my spell-scribing. I left Mayureed.
+
+
+
+I arrived in Tengo in 1010 arriving in Tengo, the City of Spires, was a profound shock. If Mayureed was a song of quiet reeds and water, Tengo was a chaotic, brilliant opera. The colossal stone spires dwarfed anything I had ever imagined, cutting the sky like monuments to our own power. The streets teemed with life and complexity, a dizzying, sometimes overwhelming mix of the eight nations. The air, thick with the scent of countless spices and unfamiliar incense, was perpetually noisy with the chatter of a thousand dialects and the low, persistent hum of arcane engineering. I felt cold and anonymous in the crowd, often wishing for the familiar sight of a peacock and the quiet of the reeds. It took me months to adjust to the sheer scale and the relentless, hurried pace of life in the capital.
+
+
+
+\*paragraphs about learning spell-scribing and studying with the lore keepers of Tengo\*
+
+
+
+In YR 1012, the first sinister signs of the Curse appeared. Initially, it was just environmental—records of severe drought and bad harvests. Most people in Tengo dismissed it as a simple bad harvest year. But soon, darker rumors began to travel from the east: whispers of monsters and missing caravans. The reports became so frequent that I felt compelled to travel back to Mayureed to check on my family. They were reluctant to believe in the horror. The harvest had been poor that year, yes, but the village was still as vibrant as always, and there were enough reserves to last until the next season.
+
+\*It was odd that our messages hadn't been reaching each other lately, but no one wanted to think the worst.\*
+
+
+
+My parents were overjoyed to see me, and they urged me to stay longer. I wish I had. That brief visit has become a haunting memory. Some days, all I can do is relive the quiet moments: walking the stone pathways, praying at the pavilion one last time. I wish I had sung with my mother once more, heard one of her stories, or played in the reed fields with my father again. I miss my old life so much; I sometimes wish I had never left home, just to have had those final days. I crave the sound of the starlit reeds singing me to sleep one last time.
+
+\*Father gave me a duduk\*
+
+
+
+By the time I returned to Tengo, the rumors had exploded, made terrifyingly real by the first refugees to enter the city. This time they brought not whispers, but vivid and harrowing stories of plagues, disasters, and monsters. Tales of storms, earthquakes, beasts, and madness. The raw horror of those accounts is one of the few things I hesitate to commit to parchment. As more survivors poured in, my anxiety for my family became unbearable. I haunted the city gates, praying to the Singers my parents had heeded my warning. In the growing number of refugees, I was desperate for a familiar face. Instead, I heard the news of my homeland's destruction. Refugees from the Inlet spoke of confusion when traversing the waterways, people vanishing into canals that had once been safe. Earthquakes opened chasms, and the marshes draining into the sea. I knew the power of the water's currents. Few could have escaped. I slowly had to face the realization: I would never see my parents, my village, or everything I knew again.
+
+
+
+The tragedy escalated so quickly, I didn't have time to process my own loss. Cities, even whole regions seem to collapse overnight. The destruction cascading faster than any record could track. Within five years, most of the LaShar lands had succumbed to the Curse. The refugees continued to pour in until Tengo was filled far beyond capacity. People were sick, starving, praying, and dying in the streets. Amidst the chaos, I remember working until I fell asleep at my desk, my fingers worn to the bone from creating spells designed to stabilize the injured and contain the spreading madness. I was 28 at the time, feeling the weight of our dying world resting on my shoulders as our resources were quickly depleated.
+
+
+
+**The Vizier Council was hastily formed from the leaders of what remained of our once great nations. They worked diligently, but desperation was palpable when they sent out four scouts as a final effort. The prayers of the people echoed through the decaying city as those riders departed. When only one scout returned, speaking of a land bridge to a distant continent, a fragile hope bloomed. Yet, many had already lost faith. When the Viziers finally decreed the Exodus must begin, some chose to remain, tying their fate to the city. We still sing songs of Tengo, the last beacon of the LaShar, blessed by the Unseen as the First and Last City. It was there I left my mentor, Lyra, behind.**
+
+
+
+**We gathered what little we had left before departing. In the end, my load was incredibly small. I carried only a few pieces of clothing, but my true treasures were the fragments of my past and our history. Most important was the crystal my mother gave me—a Keeper of Lore’s sacred tool, a piece of home I will always cherish. I also carefully packed the banner of Mayureed, which I still proudly display, and, of course, the many pages of salvaged history I mentioned earlier. These possessions were not weight; they were the few tangible pieces of the LaShar that remained.**
+
+
+
+**We traveled for two brutal months through the desert and across the land bridge. Almost as soon as we left, a fierce storm appeared, setting upon us for the entire journey. It was the Exodus, a time of unending rain and deep sorrow. Our only reliable guide was the Suzak star, which somehow shone through the downpour in the night sky. Where once the LaShar covered an entire continent, now only a weary fraction remained, blindly trudging toward an unknown destination.**
+
+
+
+**Our numbers dwindled further. Some succumbed to the storm or illness; others turned back, choosing to face the end in Tengo. I was almost among them. Beaten and battered by the rain and cold, half-starved and feverish, I began to fiercely doubt my choice. I was struggling with the guilt of surviving when my family had not. The regrets were relentless: not writing enough, not visiting more. At times, I cursed leaving Mayureed, believing that dying with my family would have been better than this unending, cold despair.**
+
+**Collapsed on a rock, shivering and delirious, I prayed to the Singer Seishin in my utter despair. I had lost hope, deciding I needed a sign to continue—some proof I was meant to survive when everything I knew had perished. No sooner had the prayer left my lips than a flash of familiar color caught my eye: a peacock, its plumage brilliant even in the rain, rising into the sky as if to meet the Suzak star. Its cry, the sound of the wind, filled me with desperate hope before it disappeared into the western sky. Whether it was real or the fever's delusion, it was the sign I needed. I carried on.**
+
+
+
+**Two days later, the Weeping occurred. The storm reached a terrifying crescendo, and the land bridge we had just walked minutes before fell away into the sea. The wails and cries of our people echoed in the dark night sky as we realized the truth: we were all that remained, and there was absolutely no way to return home. Many say the moment that land bridge collapsed was when we became the Suzak-Mar. I believe our union was more gradual. The Curse had slowly, brutally taken pieces of us, chiseling away the LaShar until only the resilient core—the Suzak-Mar—remained.**
+
+
+
